@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gabi-Braun
-- 👀 I’m interested in ...python
+- 👀 I’m interested in ...beautiful girls
 - 🌱 I’m currently learning ...python
 - 💞️ I’m looking to collaborate on ...hacking
 - 📫 How to reach me ...call batman
